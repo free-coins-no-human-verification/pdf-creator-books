@@ -18,12 +18,7 @@ Click here to download  👇👇👇
    :alt: One-Day-Fiance	
    
 
-Click here to download  👇👇👇 
-==============
 
- .. image:: vbucks.png
-   :target: https://entrogood.com/get-vbucks
-   :alt: FreeVbucks	
    
    
   I’m Poppy Woodstock.
