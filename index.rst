@@ -1,8 +1,8 @@
 ==============
-The Last Thing He Told Me A Novel BY Laura Dave BOOK
+Verity BY Colleen Hoover BOOK
 ==============	
 
-Download The Last Thing He Told Me A Novel PDF BY ~ Laura Dave
+Download Verity PDF BY ~ Colleen Hoover
 ==============
  
 
@@ -14,8 +14,8 @@ Click here to download  👇👇👇
 ==============
 
  .. image:: downloadd.png
-   :target: https://entrogood.com/books/The-Last-Thing-He-Told-Me-A-Novel
-   :alt: The-Last-Thing-He-Told-Me-A-Novel	
+   :target: https://entrogood.com/books/Verity
+   :alt: Verity	
 
 
 
