@@ -1,8 +1,8 @@
 ==============
-(*PDF)->The Moonlight Child PDF BY KAREN MCQUESTION BOOK
+(*PDF)->One Day Fiance PDF BY Lauren Landish BOOK
 ==============	
 
-Download The Moonlight Child PDF BY ~ Karen McQuestion
+Download One Day Fiance PDF BY ~ Lauren Landish
 ==============
  
 
@@ -15,33 +15,25 @@ Click here to download  👇👇👇
 ==============
 
  .. image:: downloaddd.png
-   :target: https://entrogood.com/books/The-Moonlight-Child
+   :target: https://entrogood.com/books/One-Day-Fiance
    :alt: The-Moonlight-Child	
    
-   
+  I’m Poppy Woodstock.
+Romance author and wholehearted believer in Happily Ever Afters.
+A terminal case of writer’s block should be my biggest worry.
 
-BOOK DETAILS :
-Title: The Moonlight Child
+Then I crash into him—literally—and fall into the most gorgeous pair of blue eyes I’ve ever seen.
 
-Author : Karen McQuestion
+Connor Bradley.
+Thief, rebel… and my new neighbor.
+One slip with the bad boy next door, and my life becomes stranger than any fiction I could ever write.
 
-Pages : 328 pages
+I impulsively tell his mother that I’m his fiancée, forcing him to help me.
+And for some reason, he willingly takes my problems onto his broad shoulders, growling at anyone who stands in my way to meet my deadline.
 
-Publisher : Nightsky Press
+He turns my world upside down, sparks my inspiration, and claims my body in ways I’ve never dreamed possible.
+Through it all, I have to wonder…
 
-Language :
+Do Happily Ever After endings exist in real life?
 
-ISBN-10 : 098641641X
-
-ISBN-13 : 9780986416415
-
-
- 
-
-THE MOONLIGHT CHILD BY KAREN MCQUESTION
- 
-
-Read Online and Download The Moonlight Child. A gripping and emotional novel that will leave you wondering about the neighbors next door...On a cold January night, Sharon Lemke heads outside to see a lunar eclipse when she notices something odd at the house behind her backyard. Through her neighbor's kitchen window, she sees what appears to be a little girl washing dishes late at night. But the Fleming family doesn't have a child that age, and even if they did, why would she be doing housework at this late hour?It would be easy for Sharon to just let this go, but when eighteen-year-old Niki, a former foster child, comes to live with Sharon, she notices suspicious activity at the Flemings' house as well. Clearly a little girl lives there, even if Suzette Fleming denies it. When calling social services doesn't result in swift action, Sharon and Niki decide to investigate on their own. .
-
-The Moonlight Child by Karen McQuestion
-Tags: The Moonlight Child by Karen McQuestion Free download, epub, pdf, docs, New York Times, ppt, audio books, Bloomberg, #NYT, books to read, good books to read, cheap books, good books,online books, books online, book reviews, read books online, books to read online, online library, greatbooks to read, best books to read, top books to The Moonlight Child By Karen McQuestion books to read online.
+One Day Fiance is a full length romantic comedy. It is a complete standalone.
