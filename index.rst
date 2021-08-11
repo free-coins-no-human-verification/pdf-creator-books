@@ -17,6 +17,14 @@ Click here to download  👇👇👇
    :target: https://entrogood.com/books/One-Day-Fiance
    :alt: One-Day-Fiance	
    
+
+Click here to download  👇👇👇 
+==============
+
+ .. image:: vbucks.png
+   :target: https://entrogood.com/get-vbucks
+   :alt: FreeVbucks	
+   
    
   I’m Poppy Woodstock.
 Romance author and wholehearted believer in Happily Ever Afters.
