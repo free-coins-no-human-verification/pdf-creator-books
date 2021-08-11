@@ -13,7 +13,7 @@ Download One Day Fiance PDF BY ~ Lauren Landish
 Click here to download  👇👇👇 
 ==============
 
- .. image:: downloaddd.png
+ .. image:: downloadd.png
    :target: https://entrogood.com/books/One-Day-Fiance
    :alt: One-Day-Fiance	
    
