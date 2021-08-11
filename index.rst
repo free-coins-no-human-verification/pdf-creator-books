@@ -1,8 +1,8 @@
 ==============
-One Day Fiance PDF BY Lauren Landish BOOK
+The Last Thing He Told Me A Novel BY Laura Dave BOOK
 ==============	
 
-Download One Day Fiance PDF BY ~ Lauren Landish
+Download The Last Thing He Told Me A Novel PDF BY ~ Laura Dave
 ==============
  
 
@@ -14,27 +14,21 @@ Click here to download  👇👇👇
 ==============
 
  .. image:: downloadd.png
-   :target: https://entrogood.com/books/One-Day-Fiance
-   :alt: One-Day-Fiance	
+   :target: https://entrogood.com/books/The-Last-Thing-He-Told-Me-A-Novel
+   :alt: The-Last-Thing-He-Told-Me-A-Novel	
 
 
 
-I’m Poppy Woodstock.
-Romance author and wholehearted believer in Happily Ever Afters.
-A terminal case of writer’s block should be my biggest worry.
+#1 NEW YORK TIMES BESTSELLER
+SELECTION OF THE REESE WITHERSPOON BOOK CLUB
+A HIGHLY ANTICIPATED, BEST BOOK OF SUMMER SELECTED BY * VOGUE * USA TODAY * ENTERTAINMENT WEEKLY * CNN * TOWN & COUNTRY * PARADE * BUSTLE * AND MORE!
 
-Then I crash into him—literally—and fall into the most gorgeous pair of blue eyes I’ve ever seen.
+A “gripping” (Entertainment Weekly) mystery about a woman who thinks she’s found the love of her life—until he disappears.
 
-Connor Bradley.
-Thief, rebel… and my new neighbor.
-One slip with the bad boy next door, and my life becomes stranger than any fiction I could ever write.
+Before Owen Michaels disappears, he smuggles a note to his beloved wife of one year: Protect her. Despite her confusion and fear, Hannah Hall knows exactly to whom the note refers—Owen’s sixteen-year-old daughter, Bailey. Bailey, who lost her mother tragically as a child. Bailey, who wants absolutely nothing to do with her new stepmother.
 
-I impulsively tell his mother that I’m his fiancée, forcing him to help me.
-And for some reason, he willingly takes my problems onto his broad shoulders, growling at anyone who stands in my way to meet my deadline.
+As Hannah’s increasingly desperate calls to Owen go unanswered, as the FBI arrests Owen’s boss, as a US marshal and federal agents arrive at her Sausalito home unannounced, Hannah quickly realizes her husband isn’t who he said he was. And that Bailey just may hold the key to figuring out Owen’s true identity—and why he really disappeared.
 
-He turns my world upside down, sparks my inspiration, and claims my body in ways I’ve never dreamed possible.
-Through it all, I have to wonder…
+Hannah and Bailey set out to discover the truth. But as they start putting together the pieces of Owen’s past, they soon realize they’re also building a new future—one neither of them could have anticipated.
 
-Do Happily Ever After endings exist in real life?
-
-One Day Fiance is a full length romantic comedy. It is a complete standalone.
+With its breakneck pacing, dizzying plot twists, and evocative family drama, The Last Thing He Told Me is a riveting mystery, certain to shock you with its final, heartbreaking turn.
