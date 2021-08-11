@@ -1,5 +1,5 @@
 ==============
-(*PDF)->One Day Fiance PDF BY Lauren Landish BOOK
+One Day Fiance [PDF] BY Lauren Landish BOOK
 ==============	
 
 Download One Day Fiance PDF BY ~ Lauren Landish
