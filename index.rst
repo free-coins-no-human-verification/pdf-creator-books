@@ -16,12 +16,10 @@ Click here to download  👇👇👇
  .. image:: downloadd.png
    :target: https://entrogood.com/books/One-Day-Fiance
    :alt: One-Day-Fiance	
-   
 
 
-   
-   
-  I’m Poppy Woodstock.
+
+I’m Poppy Woodstock.
 Romance author and wholehearted believer in Happily Ever Afters.
 A terminal case of writer’s block should be my biggest worry.
 
